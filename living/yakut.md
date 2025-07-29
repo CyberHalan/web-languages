@@ -2,10 +2,11 @@
 
 Additional names:
 - саха тыла
-- 
+- Sakha
 
 News:
-- 
+- https://kyym.ru/
+- https://sakha-sire.ru/
 - 
 
 Culture / History:
@@ -22,8 +23,8 @@ Political Parties:
 
 Other:
 - https://sah.wikipedia.org
-- 
-- 
+- https://sah.wikiquote.org/wiki/Сүрүн_сирэй
+- https://sah.wikisource.org/wiki/Сүрүн_сирэй
 
 Informative links (in English):
 - 
