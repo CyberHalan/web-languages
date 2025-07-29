@@ -2,7 +2,7 @@
 
 Additional names:
 - саха тыла
-- 
+- Sakha
 
 News:
 - 
